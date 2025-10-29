@@ -17,5 +17,7 @@
 
 ⠀⠀⠀
 
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎
-[rentry](https://rentry.co/snotaconyaoi) ‎  ‎ ‎ ‎  ‎  ‎ ‎‎ ‎ ‎‎[‎atabook](https://revolverocelot.atabook.org/) ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎[pronouns](https://pronouns.cc/@bbkazyaoi)
+<p align="center">
+<h4 align="center"
+  
+  ‎[‎atabook](https://revolverocelot.atabook.org/)
