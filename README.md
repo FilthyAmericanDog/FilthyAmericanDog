@@ -1,23 +1,21 @@
 <p align="center">
-  <img width="650" src="https://files.catbox.moe/2twp3l.png?v=e3c0bc0f=true" alt="."/>
-</p>
-
-<p align="center">
-19ㅤyearsㅤofㅤage.ㅤautistic,ㅤavoidantㅤpd,ㅤandㅤdepressive.ㅤc + hㅤisㅤwelcomeㅤ!
-</p>
-<p align="center">
-w2iㅤmostㅤofㅤtheㅤtime,ㅤplease.ㅤocelotㅤfanatic;ㅤiㅤloveㅤhimㅤdearly.
-</p>
-
- <p align="center">
-  <img src="https://files.catbox.moe/rzm9b1.gif?v=e3c0bc0f=true" alt="."/>
-</p>
-
-<p align="center">
 <h4 align="center"
 
-![](https://komarev.com/ghpvc/?username=bbkazyaoi&label=VIEWS+++&color=752b2a)
-
- <p align="center">
-  <img width="650" src="https://files.catbox.moe/bof6i0.png?v=e3c0bc0f=true" alt="."/>
+![](https://komarev.com/ghpvc/?username=bbkazyaoi&label=VIEWS+++&color=697688)
+<p align="center">
+  <img width="650" src="https://i.postimg.cc/y8339sFb/Untitled344-20251029193219.png?v=e3c0bc0f=true" alt="."/>
 </p>
+ ‎ ‎ ‎
+‎ ‎ ‎ ‎‎ ‎ ‎ ‎
+
+⠀⠀⠀
+
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎
+
+  
+‎ ‎ ‎ ‎‎ ‎ ‎ ‎
+
+⠀⠀⠀
+
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎
+[rentry](https://rentry.co/snotaconyaoi) ‎  ‎ ‎ ‎  ‎  ‎ ‎‎ ‎ ‎‎[‎atabook](https://revolverocelot.atabook.org/) ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎[pronouns](https://pronouns.cc/@bbkazyaoi)
