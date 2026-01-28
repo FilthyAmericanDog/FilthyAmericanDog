@@ -6,15 +6,7 @@
   <img width="650" src="https://i.postimg.cc/y8339sFb/Untitled344-20251029193219.png?v=e3c0bc0f=true" alt="."/>
 </p>
  ‎ ‎ ‎
-‎ ‎ ‎ ‎‎ ‎ ‎ ‎
-
-⠀⠀⠀
-
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎
-
-  
-‎ ‎ ‎ ‎‎ ‎ ‎ ‎
-
+‎ 
 <p align="center">
 <h4 align="center"
   
